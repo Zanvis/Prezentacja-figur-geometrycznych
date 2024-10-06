@@ -1,3 +1,6 @@
+
+https://github.com/user-attachments/assets/bd93b788-3a3d-4197-903c-ce427d0e9e8a
+
 ![image](https://github.com/Zanvis/Prezentacja-figur-geometrycznych/assets/161169953/65ef8c79-2c41-41e6-9185-6a715c948058)
 ![image](https://github.com/Zanvis/Prezentacja-figur-geometrycznych/assets/161169953/30f6e4f1-a76a-4f61-a202-9dd00bc02f80)
 ![image](https://github.com/Zanvis/Prezentacja-figur-geometrycznych/assets/161169953/9f81a252-74d3-4318-a241-4f79765df478)
